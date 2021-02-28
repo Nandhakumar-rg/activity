@@ -1,1 +1,1 @@
-summa
+summa.
